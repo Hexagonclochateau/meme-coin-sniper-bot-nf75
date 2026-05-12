@@ -1,4 +1,4 @@
-# 
+# geckoterminal sniper bot exclusive Bot - simulation-mode and priority-gas-auctions offers the most advanced geckoterminal sniper bot, with simulation-mode and
 
 
 
